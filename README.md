@@ -1,2 +1,1 @@
-nhìn cl
-discord.gg/hyrisecity
+ahhahahah
